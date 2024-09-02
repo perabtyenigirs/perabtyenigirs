@@ -1,1 +1,2 @@
+<h1><a href="http://gg.gg/1by9y2" title="PERABET GİRİŞ 2024">PERABET GİRİŞ 2024</a></h1>
 PERABET RESMİ GÜNCEL BİLGİLENDİRME PLATFORMUNA HOŞGELDİNİZ
